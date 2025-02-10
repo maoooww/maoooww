@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://visitcount.itsvg.in"> <br />
-   <img src="https://visitcount.itsvg.in/api?id=maoooww&label=%E2%82%8A%CB%9A%E2%8A%B9%20%F0%90%82%AF&color=3&icon=9&pretty=false" /> <br />
+  <img src="https://file.garden/ZlTvQTBYblwbIgy5/tumblr_a954ff6b2d8742d0c53f2d2c5d4ebfc0_ed64d76e_1280.webp">
     </a>
   <p align="right">
  $\color{#068396}{Do~you~believe~in~Jɛsʋs~Chr¡st~~.~.~?}$<br />
